@@ -1,0 +1,1 @@
+# XznShirkiCry-v1.0-Decryptor
